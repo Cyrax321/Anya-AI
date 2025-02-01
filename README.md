@@ -1,6 +1,6 @@
 
 
-# 🌸✨ **Anya AI** ✨🌸 – 
+# 🌸✨ **Anya AI** ✨🌸 
 Your Personal Chat BFF 💖
 
 ---
